@@ -1,0 +1,10 @@
+Ordenanza Nº4936/23
+Ordenanza Nº 4936/23
+Coronel Pringles, 05/12/2023
+El Expediente Nº 2.629/23 iniciado por el Secretario de Desarrollo Sr. Oscar Rossi; y
+Que mediante el mismo solicita autorización para la suscripción de un Convenio Específico de Cooperación entre la Universidad Nacional de La Plata, a través de la Facultad de Trabajo Social, y el Municipio de Coronel Pringles, en el marco del Convenio celebrado oportunamente entre las partes;
+Que mediante el Convenio objeto del presente, de común acuerdo, el Municipio y la Facultad adoptarán programas de coordinación y cooperación para la ejecución conjunta, y/o a pedido de una de las partes en lo referido a Prácticas de Formación Profesional de Grado y Posgrado, Desarrollo de Proyectos de Extensión e Investigación, Acciones de Capacitación, y/o toda otra actividad que resulte de mutuo interés y que se desprenda de los objetivos de cada anexo del Convenio;
+Que el mismo tendrá una vigencia de cuatro (04) años a partir de su suscripción, pudiendo cualquiera de las partes denunciarlo sin obligación de expresión de causa mediante comunicación fehaciente a la otra parte con noventa (90) días de anticipación;
+Por ello,
+EL HONORABLE CONCEJO DELIBERANTE DE CORONEL PRINGLES, EN EJERCICIO DE LAS FACULTADES QUE LE SON PROPIAS, SANCIONA CON FUERZA DE
+ORDENANZA
