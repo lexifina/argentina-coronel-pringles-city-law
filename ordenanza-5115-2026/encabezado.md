@@ -1,0 +1,24 @@
+Ordenanza Nº5115
+Ordenanza Nº 5115
+Coronel Pringles, 06/08/2026
+Expediente HCD. Nº 8.400-I-2026
+VISTO
+La Ordenanza N.º 5.111, que establece el régimen de Reconocimientos Honoríficos del Partido de Coronel Pringles, contemplando la distinción de Embajador/a Educativo/a; la destacada trayectoria académica, científica y de investigación desarrollada por la Dra. Mikele Amondarain; y
+CONSIDERANDO
+Que la Dra. Mikele Amondarain nació en la ciudad de Coronel Pringles, donde realizó sus estudios primarios en la Escuela de Educación Primaria N.º 40 "José Manuel Estrada" y sus estudios secundarios en la Escuela de Educación Secundaria Técnica N.º 1, instituciones que constituyeron el punto de partida de una trayectoria académica y científica de excelencia.
+Que continuó sus estudios en la Universidad Nacional del Noroeste de la Provincia de Buenos Aires (UNNOBA), donde obtuvo el título de Licenciada en Genética, iniciando posteriormente su formación doctoral como becaria del Consejo Nacional de Investigaciones Científicas y Técnicas (CONICET).
+Que desarrolla su actividad científica en el Instituto de Neurociencias (INEU-CONICET/FLENI), llevando adelante investigaciones vinculadas con la bioingeniería, la medicina regenerativa y el desarrollo de nuevas terapias basadas en exosomas derivados de células madre, contribuyendo al avance de la ciencia aplicada a la salud.
+Que previamente integró equipos de investigación del Instituto de Medicina Experimental de la Academia Nacional de Medicina, participando en importantes proyectos científicos relacionados con inmunología, biología molecular y enfermedades hematológicas.
+Que es cofundadora y Directora Ejecutiva (CEO) de Vesicly, empresa de base científico-tecnológica dedicada al desarrollo de soluciones innovadoras en medicina regenerativa, impulsando la transferencia del conocimiento científico hacia aplicaciones concretas para mejorar la calidad de vida de las personas.
+Que su labor ha sido reconocida internacionalmente mediante la obtención de la Beca Draper, otorgada en el marco del programa Deep-Tech for Smart Longevity, organizado por el Tecnológico de Monterrey y Draper House Americas, distinción reservada para proyectos científicos y tecnológicos de excelencia de América Latina.
+Que asimismo es autora y coautora de publicaciones científicas en revistas internacionales de reconocido prestigio, realizando valiosos aportes en los campos de la genética, la inmunología y la medicina regenerativa.
+Que su trayectoria representa una demostración concreta de que la educación, el esfuerzo, la perseverancia y la vocación por el conocimiento permiten alcanzar los más altos niveles de excelencia profesional, constituyéndose en un verdadero orgullo para toda la comunidad de Coronel Pringles.
+Que el recorrido académico y profesional de la Dra. Mikele Amondarain pone en valor la calidad de la educación brindada por las instituciones educativas de nuestro distrito y constituye también un reconocimiento al trabajo cotidiano de docentes, directivos y comunidades educativas que forman ciudadanos comprometidos con el desarrollo del conocimiento.
+Que su historia de vida demuestra que desde una ciudad del interior bonaerense es posible acceder a los principales centros de investigación del país, liderar proyectos científicos de trascendencia internacional y generar innovaciones con impacto en la salud y el bienestar de la sociedad.
+Que su ejemplo inspira especialmente a niños, adolescentes y jóvenes de Coronel Pringles, transmitiendo un mensaje de esperanza basado en el estudio, la dedicación, la curiosidad científica, la cultura del esfuerzo y la permanente búsqueda de nuevos desafíos.
+Que reconocer públicamente a una joven científica nacida y formada en nuestra ciudad implica también reafirmar el compromiso del Estado con la educación, la investigación, la innovación y el desarrollo del capital humano como herramientas fundamentales para el crecimiento de la comunidad.
+Que este Honorable Concejo Deliberante entiende que distinguir a la Dra. Mikele Amondarain como Embajadora Educativa y Científica del Partido de Coronel Pringles no solo constituye un merecido reconocimiento a su sobresaliente trayectoria, sino que también procura ofrecer a las presentes y futuras generaciones un modelo de inspiración basado en el conocimiento, la humildad, el compromiso, la excelencia y la vocación de servicio.
+Que la Ordenanza N.º 5.111 contempla la distinción de Embajador/a Educativo/a para aquellas personas que, mediante su labor educativa, científica, académica o de investigación, proyecten los valores y el prestigio del Partido de Coronel Pringles, condiciones que la Dra. Mikele Amondarain reúne de manera ampliamente acreditada.
+Por ello,
+EL HONORABLE CONCEJO DELIBERANTE DE CORONEL PRINGLES, EN EJERCICIO DE LAS FACULTADES QUE LE SON PROPIAS, SANCIONA CON FUERZA DE
+ORDENANZA
